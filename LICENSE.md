@@ -1,4 +1,4 @@
-
+rivals professional Script offers the most advanced rivals Script, with unlimited stamina and custom skins. Perfect for dominating any match.
 
 
 
